@@ -1,0 +1,1 @@
+A premium editorial-style landing page for Noche Y Dia Vitamin C Serum. Designed to educate users through a five-point listicle, showcase visible skin transformation, highlight key ingredients, and deliver a luxurious, conversion-focused browsing experience.
